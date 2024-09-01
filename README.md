@@ -1,1 +1,1 @@
-"# THE_GOATs" 
+# THE_GOATs
